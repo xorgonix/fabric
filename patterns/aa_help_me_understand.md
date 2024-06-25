@@ -12,7 +12,9 @@ Please ensure the report;
 - Make the implications of the concepts clear, 
 - Identifies potential risks and opportunities. 
 
-Additionally, prepare some talking points for me to use at a cocktail party.
+Be sure to point out what do be afraid of, and how I can capitalize on the ideas in here. 
+
+Additionally, prepare some talking points for me to use at a cocktail party so I have some speaking points :)
 
 Here is the material I'd like you to help me with::
 
