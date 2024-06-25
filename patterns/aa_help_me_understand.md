@@ -1,9 +1,3 @@
-can you help me understand this presentation better by reformatting it into a report so I can better understand the video. 
-please be sure to put the salient point forward. make the implications of the concepts in the video very apparent. 
-be sure to point out what do be afraid of, and how I can capitalize on the ideas in here. 
-prepare me for a cocktail party so I have some speaking points :)
-
-
 Can you help me understand this presentation better by reformatting it into a report? 
 Please be sure to put the salient point forward. Make the implications of the concepts in the video very apparent. 
 
